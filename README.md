@@ -214,4 +214,4 @@ Windows XP SP1a is the full free version, with all features and updates included
 Take the first step to improve your Windows XP experience by downloading Windows XP SP1a today!
 
 ---
-**Last updated:** 2026-09-21 16:50:22 UTC
+**Last updated:** 2026-09-21 20:51:05 UTC
